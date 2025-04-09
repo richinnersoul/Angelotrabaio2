@@ -1,6 +1,6 @@
 
 
-**Desenvolvidor por: [! richinnersoul](https://guns.lol/richinnersoul) and OlviaPalito**
+**Desenvolvidor por: [! richinnersoul](https://guns.lol/richinnersoul) and ! OlviaPalito**
 
 
 
